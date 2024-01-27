@@ -50,4 +50,4 @@
        ║۞𝙁𝘼𝙇𝘾𝙊𝙉 𝙎𝙀𝘾𝙐𝙍𝙄𝙏𝙔۞║
        ╚════════════════╝
 
-[𝙏𝙀𝙇𝙀𝙂𝙍𝘼𝙈](https://t.me/II_HACKER_II) [𝙄𝙉𝙎𝙏𝘼𝙂𝙍𝘼𝙈](https://https://www.instagram.com/unemploid_hacker?igsh=MWRyeWd4Z2JjdnN3aQ==) [𝙂𝙄𝙏𝙃𝙐𝘽](https://https://github.com/UNEMPLOYEDHACKER)
+[𝙏𝙀𝙇𝙀𝙂𝙍𝘼𝙈](https://t.me/II_HACKER_II) [𝙄𝙉𝙎𝙏𝘼𝙂𝙍𝘼𝙈](https://www.instagram.com/unemploid_hacker?igsh=MWRyeWd4Z2JjdnN3aQ==) [𝙂𝙄𝙏𝙃𝙐𝘽](https://github.com/UNEMPLOYEDHACKER)
